@@ -90,7 +90,7 @@ Sweat during sleep. <br>
 
 <p>PREVENTION</p>
 
-<p>Always keep protected sex honest to 1 partner.</p></details>
+<p>Always keep protected sex honest to 1 partner.</p> </details>
 
 <p>13.What are symptons of disease?Explain.</p>
 <details><p>Ans.There are many symptons of disease.Every disease has different symptons.1.FEVER 2.DIARRHEA 3.COLD 4.MUSCLE ACHES 5.HEADACHE 6.COUGHING 7.PROBLEM IN DIGESTIVE SYSTEM.</p></details><br>
